@@ -1,0 +1,1 @@
+Tova te stovi fail.
